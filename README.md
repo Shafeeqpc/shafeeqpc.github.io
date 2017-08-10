@@ -1,1 +1,1 @@
-i am madly in lovw with someone... ;)
+i am madly in love with someone... ;)
